@@ -4,10 +4,10 @@
 ![](https://64.media.tumblr.com/85aac092cd23a24f545a0fae8d49247d/fc819193d1d44c87-9b/s1280x1920/6b21a512b229e49a6e5660e28d4951ac86ad9d07.pnj)
 
 <p align="center">
-★   ︵   @  manny .ᐟ.ᐟ
+★   ︵   @  manny or cabbage .ᐟ.ᐟ
 
 <p align="center">
-Aroace ୭ ˚. ᵎᵎ Genderfluid Masc   ⟢   🦴 
+╰┈➤ Aroace ୭ ˚. ᵎᵎ Genderfluid Masc   ⟢   🦴 
   
 <p align="center">
 ౨    OSDD SYSTEM   !

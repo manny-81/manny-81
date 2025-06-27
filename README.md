@@ -1,5 +1,11 @@
 <p align="center">
+Live by the Sun.
+
+<p align="center">
   <img src="https://files.catbox.moe/j5hg9i.png"/>
+
+<p align="center">
+Die by the Moon.
   
 ![](https://64.media.tumblr.com/85aac092cd23a24f545a0fae8d49247d/fc819193d1d44c87-9b/s1280x1920/6b21a512b229e49a6e5660e28d4951ac86ad9d07.pnj)
 
